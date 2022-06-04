@@ -1,2 +1,2 @@
-# link
+# Destinasi Wisata Indonesia
 <a target="_blank" href="https://www.triplyfe.id">Wisata Indonesia</a> memang sangat mempesona. Ragam pilihan destinasi wisata Indonesia akan memberikan pengalaman tiada dua bagi setiap pengunjungnya. Mulaii dari wisata alam, gunung, lembah, bukit, danau, bahkan hutan. KEkayaan alam ini juga turut ditunjang dengan kekayaan flora, fauna, buadya, dan kulinernya. Keragaman suku budaya di Indonesia seolah menjadi berkat tak terhingga bagi dunia pariwisata Indonesia.
